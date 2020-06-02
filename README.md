@@ -1,1 +1,1 @@
-# solely-survivors-new-town
+# solely-survivors
